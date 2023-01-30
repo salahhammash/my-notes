@@ -6,7 +6,6 @@
  My name is salah hammash im 27 years old ,  im a civil engineer , i graduated from UKRAINE in 2019 .
 
 
-
 today i learned
 
  The purpose of all software is To help people , 
@@ -43,3 +42,6 @@ do the project with love and let it easy not hard (work smart not hard )
 -Keep learning every new day dont stop it 
 
 - dont be shy to say than you dont know how to do somthing or you dont understand it , ask for help (always seek advice) & dont be stubborn
+
+
+aaaaaaa
